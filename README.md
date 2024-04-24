@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- ⚡ Fun fact: my fav drik is Club Mate
+- ⚡ Fun fact: my fav drink is Club Mate
